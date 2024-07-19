@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi there 👋 My name is chris
+Hi there 👋 My name is christopher 
 
 
 ## 🌐 Socials:
